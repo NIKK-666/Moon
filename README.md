@@ -1,3 +1,3 @@
 # for-your-crush
 ## 🌝
-Visit [Moon](https://rohitw3code.github.io/for-your-crush/) to see the magic happen!
+Visit [Moon](https://nikk-666.github.io/Moon/) to see the magic happen!
